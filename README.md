@@ -1,1 +1,1 @@
-# Grupos-tnicos-de-Honduras
+# Grupos-etnicos-de-Honduras
